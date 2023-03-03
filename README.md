@@ -6,3 +6,11 @@
 
 1. 本文中明显的知识和逻辑性错误欢迎指出，喷子请绕道
 2. 本文不提供任何目标国家或地区选择的建议
+
+# 群
+
+润欧群：[https://t.me/+1zVvy2dTY1FkY2Yx](https://t.me/+1zVvy2dTY1FkY2Yx)
+
+润日群：[https://t.me/+6tS2VUnn0qc2Yzcx](https://t.me/+6tS2VUnn0qc2Yzcx)
+
+润澳群：[https://t.me/+ZnoQ8DmXpFAwYzI1](https://t.me/+ZnoQ8DmXpFAwYzI1)
