@@ -14,3 +14,9 @@
 润日群：[https://t.me/+6tS2VUnn0qc2Yzcx](https://t.me/+6tS2VUnn0qc2Yzcx)
 
 润澳群：[https://t.me/+ZnoQ8DmXpFAwYzI1](https://t.me/+ZnoQ8DmXpFAwYzI1)
+
+# 个人tg频道
+
+https://t.me/+JT2dNztMTc1iZmFh
+
+主要分享润学信息和个人感悟
